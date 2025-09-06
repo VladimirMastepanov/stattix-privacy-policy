@@ -56,4 +56,4 @@ We do not share your personal data with other external services without your con
 
 If you have any questions about this Privacy Policy or how your data is handled, you can contact us at:
 
-Email: 
+Email: mastepanovmail@gmail.com
